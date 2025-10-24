@@ -1,4 +1,4 @@
-# Hi there, I'm Rei Ruzzel Intud 👋
+# Hi there, I'm Rei Intud 👋
 
 ### Business Operations Specialist | Virtual Assistant | Marketing Professional
 
