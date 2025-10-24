@@ -37,11 +37,11 @@ I'm a **Business Administration graduate** specializing in **Marketing** with a 
 
 ### 📊 Experience Snapshot
 ```
-Executive Support        ████████████████████ 4+ years
-Marketing & Sales        ██████████████████   3+ years
-Virtual Assistance       ████████████         2+ years
-Project Management       ███████████████      3+ years
-CRM & Data Management    ██████████████       3+ years
+Executive Support        ████████████████████ 3+ years
+Marketing & Sales        ██████████████████   2+ years
+Virtual Assistance       ████████████         1+ years
+Project Management       ███████████████      2+ years
+
 ```
 
 ---
