@@ -190,7 +190,7 @@ I'm always open to:
 
 ## 📌 Fun Facts
 
-- 🏆 Won "Best Showcase Award" for sustainable fashion startup pitch in university
+- 🏆 Won "Best Showcase Award" for Product Pitch 
 - 🎨 Love creating visual content with Canva (100+ designs and counting!)
 - 📚 Avid reader of business and marketing books
 - ☕ Coffee-powered productivity enthusiast
